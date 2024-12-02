@@ -1,0 +1,1 @@
+# Flashcard-ainda-precisa-de-alguns-ajustes-
